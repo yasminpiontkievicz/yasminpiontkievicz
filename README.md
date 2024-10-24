@@ -1,4 +1,4 @@
-- 🔭 Hoje ue trabalho como jovem aprendiz
+- 🔭 Hoje eu trabalho como jovem aprendiz
 - 🌱 Estudando Desenvolvimento de Sistemas
 - 💬 Contate-me no email : yasminpiont2008@gmail.com
 - 😄 Pronouns: ela/dela
